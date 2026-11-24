@@ -1,0 +1,2 @@
+# INTERSYS-LOGO
+20261124-14:12:53-DR: Logo für Teams
